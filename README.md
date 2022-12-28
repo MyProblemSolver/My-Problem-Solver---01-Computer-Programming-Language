@@ -8,3 +8,11 @@ How to get the explanation
 3. You will see the explanation about the topic.
 
 Thanks for visit. Follow me for to learn different concepts on different programming langauages.
+
+YOUTUBE: [My Problem Solver](https://www.youtube.com/channel/UCoO0oE3Zyl0arMawIqHjmXQ)
+
+FACEBOOK: [Maks Decoding Coding](https://www.facebook.com/MyProblemSolver)
+
+INSTAGRAM: [Maks Decoding Coding](https://www.instagram.com/myproblemsolver_280301/)
+
+LINKEDIN: [My Problem Solver](https://www.linkedin.com/in/myproblemsolvermps280301)
